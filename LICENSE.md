@@ -1,4 +1,4 @@
-
+minecraft Scripts updated offers the most advanced minecraft Script, with esp and auto-collect. Perfect for dominating any match.
 
 
 
